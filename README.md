@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Paxep420
+- 👀 I’m interested in minecraft command blocks and datapacks.
+- 🌱 I’m currently learning minecraft command blocks and datapacks.
+- 📫 You can reach me on discord at Paxep#3066.
